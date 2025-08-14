@@ -1,6 +1,8 @@
 # 🎨 Artistikk R3b3llion™
+
 **Creative x Unorthodox Platform**  
 *Creativity Unchained.*  
+
 *No Limits. No Labels. Just Pure Expression.*
 
 
