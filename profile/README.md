@@ -3,21 +3,17 @@
 *Creativity Unchained.*  
 *No Limits. No Labels. Just Pure Expression.*
 
----
+
 
 ## 🎭 What We Do
 Artistikk R3b3llion™ is a rebellious creative platform—a vehicle for experimental expression, artistic innovation, and unorthodox ideas that challenge convention.  
 
-We create:  
-- Art  
-- Music  
-- Poetry  
-- Storytelling  
-- Strategic expressions  
+We create art, music, poetry, storytelling, **creative technology**, and **strategic play & expressions** — blending artistic innovation with tech-driven experiences that challenge convention.
+  
 
 From avant-garde visuals to disruptive forms of strategy, Artistikk R3b3llion™ exists to challenge the norm, ignite imagination, and amplify the rebellious spirit within every creator.
 
----
+
 
 ## 🎯 Purpose  
 
@@ -30,7 +26,7 @@ To awaken creative potential and ignite purpose—fueling change that uplifts hu
 **Mantra**  
 Creativity Engineered. Purpose Ignited.  
 
----
+
 
 ## 🌬️ The Soul of Artistikk R3b3llion™
 At Artistikk R3b3llion™, we believe the world is shaped by those brave enough to defy limits and dismantle labels.  
@@ -43,7 +39,7 @@ It’s about rebellion with purpose, disrupting the ordinary, and making room fo
 We are not just another creative platform.  
 We are a movement—a catalyst for change—where every act of creation becomes an act of revolution.  
 
----
+
 
 ## 🤝 Let’s Connect  
 🌐 [Website](https://www.jasminelewis.tech)  
@@ -53,7 +49,7 @@ We are a movement—a catalyst for change—where every act of creation becomes 
 📖 [Facebook](https://facebook.com/)  
 🐦 [Twitter (X)](https://twitter.com/)  
 
----
+
 
 *Creativity Unchained.*  
 **No Limits. No Labels. Just Pure Expression.**  
