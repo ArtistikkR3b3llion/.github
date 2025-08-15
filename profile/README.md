@@ -1,3 +1,7 @@
+
+<img width="1536" height="1024" alt="artistikk-rebellion-github-profile-hero-min" src="https://github.com/user-attachments/assets/f8a17ace-8569-4621-8bd4-ac0176924990" />
+
+
 # 🎨 Artistikk R3b3llion™
 
 **Creative x Unorthodox Platform**  
